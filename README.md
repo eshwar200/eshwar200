@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Mental wellness application<br>I'm looking to collaborate on text to speech projects<br>I'm looking for help with UI/UX designers<br>I'm currently learning ML & Data Analytics<br>I love to innovate 
+👨‍💻 BTech Student & Innovator working on Mental wellness application<br>🚀 Entrepreneurial Spirit<br>🏆 Hackathon & Competition Lovers<br>🤖 AI & Data Science Enthusiast<br>🌍 Team Player & Collaborator
 
 
 ## 🌐 Socials:
